@@ -1,4 +1,4 @@
-### Hi there 👋
+###  I am excited to learn new things in this program 👋
 
 <!--
 **JaniseT215/JaniseT215** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
